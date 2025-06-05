@@ -1,1 +1,0 @@
-# Slova_is_slova
